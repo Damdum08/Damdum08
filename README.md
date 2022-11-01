@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Damdum08
 - 🌱 I’m currently learning system security
-- 💞️ I’m looking to collaborate on Elon Musk
+- 💞️ I’m looking to collaborate with Elon Musk
