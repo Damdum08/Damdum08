@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Damdum08
+- 👋 Hi, I’m @Damdum_
 - 👨‍💻 I’m currently learning system security
-- 🤡 I’m looking to collaborate with Elon Musk
-- 🤩 I love ChatGPT
+- 🤡 I’m looking to collaborate with ...
+- 🤩 I love ....
